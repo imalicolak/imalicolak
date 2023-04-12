@@ -2,7 +2,7 @@
 
 ### What's up guys! Ali Colak here 👋
 
-I'm a coder, singer, songwriter, and youtuber with a degree in Marketing & Product Management! Prior to all of that, I tried to start up my own companies, now I make music & code. 
+I'm a coder, musician, and youtuber with a degree in Marketing & Product Management. Before all of that, I tried to start up my own companies with no success, but I learned from it all and now I make music and code!
 
 Check out my latest video @ https://www.youtube.com/watch?v=8xLdxrJFY54&t=346s
 
