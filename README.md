@@ -1,5 +1,4 @@
-<!--
-**imalicolak/imalicolak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 ### What's up guys! Ali Colak here 👋
 
@@ -23,4 +22,4 @@ Learn More at...
 - linkedin.com/in/imalicolak
 - (Not live yet) imalicolak.com
 
---> 
+
