@@ -8,14 +8,13 @@ Check out my latest video @ https://www.youtube.com/watch?v=8xLdxrJFY54&t=346s
 
 My hobbies include: 
 
-- 🎬 Telling stories through videos
+- 🎬 Telling stories through Youtube videos
 - 🎸 Fingering guitar
 - 🎤 Singing
 - 📝 Writing songs
-- 💃🏻 Salsa dancing
 - 🌍 Traveling the world
+and
 - 🤵🏻 Lookin sharp
-- 🪵 Carpentry
 
 Learn More at...
 
