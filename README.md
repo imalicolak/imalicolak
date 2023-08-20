@@ -19,6 +19,6 @@ and
 Learn More at...
 
 - https://www.linkedin.com/in/imalicolak
-- (In Revision) alicolakdev.com
+- http://alicolakdev.com
 
 
